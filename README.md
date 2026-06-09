@@ -2,4 +2,4 @@
 
 一、概念点以及参考文献  
 1、VLA：  
-同济子豪兄的知识库（https://zihao-ai.feishu.cn/wiki/TS6swApHbinx01kHDi5cf5n5n8c）
+同济子豪兄的知识库（https://zihao-ai.feishu.cn/wiki/space/7589642043471924447）
